@@ -1,3 +1,3 @@
 # profile2023
 
-for job hunting, last update on january 2023.
+My project profolio, last updated on March 2023.
